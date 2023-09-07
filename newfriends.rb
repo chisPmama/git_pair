@@ -1,0 +1,1 @@
+"Hello would you like to be my friend?"
